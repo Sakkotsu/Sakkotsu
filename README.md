@@ -1,0 +1,6 @@
+- 👋 Olá, eu sou @Sakkotsu
+- 👀 Estou interessado em ... Jogos, rpg, livros e geek.
+- 🌱 Atualmente aprendendo ... Linguagem de programação, como usar Git Hub e informática.
+- 📫 Como me contatar ... Christopherdefreitasnapoleao@gmail.com
+- 😄 Pronomes: ...Ele\Dele
+- ⚡ Fato curioso: ... Eu amo coisas geek e livros diversos.
